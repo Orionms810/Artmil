@@ -13,3 +13,11 @@ sp2 ou sp3 sale zgeg
 aahahaha sp2
 
 clean 
+
+
+
+
+Gazo ou Soolking
+damso ou green montana
+ninho ou jul 
+booba ou kaaris
